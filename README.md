@@ -1,9 +1,6 @@
 Daria Chagina 
-
 daria2503chagina@gmail.com 
-
 600 023 698 
-
 Madrid, España
 
 
