@@ -15,8 +15,9 @@ Poseo un nivel bilingüe de español, nativo de ruso e intermedio de inglés.
 
 Facilita la capacidad de gestionar los entornos de recepción con aplomo y elegancia, además de gestionar una serie de tareas administrativas. Deseoso de unirse a un nuevo equipo de personas y ayudarles como recepcionista comprometida y apasionada.
 
-Le agradezco su tiempo y le invito a leer mi curriculum vitae (https://github.com/dchagina/cv_daria_chagina/blob/cv_daria_chagina/CV%20Daria%20Chagina.%20Enero-23.pdf) para que conozca más sobre mi desempeño en otros trabajos. Si lo preferen, podríamos reunirnos en una entrevista para conversar más en detalle.
-Muchas gracias,  
+Le agradezco su tiempo y le invito a leer mi curriculum vitae (https://github.com/dchagina/cv_daria_chagina/blob/cv_daria_chagina/CV%20Daria%20Chagina.%20Enero-23.pdf) para que conozca más sobre mi desempeño en otros trabajos. Si lo prefieren, podríamos reunirnos en una entrevista para conversar más en detalle. 
+
+Muchas gracias,
   
   
 
