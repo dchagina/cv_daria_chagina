@@ -6,7 +6,8 @@ He trabajado con los programas Suite Hoteles, Booking, Microsoft Office (Word, E
 
 Facilita la capacidad de gestionar los entornos de recepción con aplomo y elegancia, además de gestionar una serie de tareas administrativas. Deseoso de unirse a un nuevo equipo de personas y ayudarles como recepcionista comprometida y apasionada.
 
-Le agradezco su tiempo y le invito a leer mi curriculum vitae para que conozca más sobre mi desempeño en otros trabajos. Si lo prefiere, podríamos reunirnos en una entrevista para conversar más en detalle.
+Le agradezco su tiempo y le invito a leer mi curriculum vitae [CV]
+[CV]: https://github.com/dchagina/cv_daria_chagina_ene-23/blob/cv_daria_chagina/CV%20Daria%20Chagina.%20Ene-22.pdf para que conozca más sobre mi desempeño en otros trabajos. Si lo prefiere, podríamos reunirnos en una entrevista para conversar más en detalle.
 Muchas gracias,
 
 
