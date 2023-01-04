@@ -1,7 +1,7 @@
-Daria Chagina 
-daria2503chagina@gmail.com 
-600 023 698 
-Madrid, España
+Daria Chagina  
+daria2503chagina@gmail.com  
+600 023 698  
+Madrid, España  
 
 
 
@@ -16,7 +16,7 @@ Poseo un nivel bilingüe de español, nativo de ruso e intermedio de inglés.
 Facilita la capacidad de gestionar los entornos de recepción con aplomo y elegancia, además de gestionar una serie de tareas administrativas. Deseoso de unirse a un nuevo equipo de personas y ayudarles como recepcionista comprometida y apasionada.
 
 Le agradezco su tiempo y le invito a leer mi curriculum vitae (https://github.com/dchagina/cv_daria_chagina_ene-23/blob/cv_daria_chagina/CV%20Daria%20Chagina.%20Ene-22.pdf) para que conozca más sobre mi desempeño en otros trabajos. Si lo prefiere, podríamos reunirnos en una entrevista para conversar más en detalle.
-Muchas gracias,
+Muchas gracias,  
 
 
 
