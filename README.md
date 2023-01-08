@@ -1,24 +1,19 @@
-Daria Chagina  
-daria2503chagina@gmail.com  
-600 023 698  
-Madrid, España  
+DARIA CHAGINA 
+daria2503chagina@gmail.com 
++34 600 023 698 
+Madrid, España 
 
-  
-  
-Estimados señores,
 
-Me dirijo ante Ustedes en respuesta al anuncio de empleo que han publicado en las redes sociales en búsqueda de una recepcionista. Me he dedicado varios años como trabajadora experimentada en la recepción sirviendo como empleado de apoyo e integrante en entornos de clientes (exp. en oficina de 1400 trabajadores y en hotel de 100 habitaciones). Tengo experiencia en gestión de las reservas /citas, prestación de un servicio óptimo de atención al cliente, facturación, clasificación y preparación de los envíos, arqueo de la caja, realización de los informes diarios, la creación de las tareas para personal, control de pedidos y stock de mercancías. 
+Estimados/as señores/as,
+Me dirijo a ustedes en respuesta al anuncio de empleo publicado en redes sociales, solicitando una recepcionista. Tengo varios años de experiencia como trabajadora experimentada en la recepción, trabajando de forma autónoma y como apoyo en el entorno de la atención al cliente (empresa de 1400 empleados y hotel de 100 habitaciones). Cuento con experiencia en la gestión de reservas y citas prestando un servicio óptimo en la atención al cliente; facturación, clasificación y preparación de envíos; arqueo de la caja; elaboración de informes diarios; preparación de tareas para personal, control de pedidos y stock de mercancías. 
 
-He trabajado con los programas Suite Hoteles, Booking, Microsoft Office (Word, Excel, Outlook, Access, Teams, PowerPoint), Google Meet, Zoom, etc. 
+Por mi capacidad para gestionar los entornos de recepción, doy un servicio al cliente con aplomo y elegancia, además de la gestión de las tareas administrativas. 
 
-Poseo un nivel bilingüe de español, nativo de ruso e intermedio de inglés.
+En cuanto a idiomas tengo un nivel bilingüe de español, nativa de ruso y un nivel intermedio de inglés. Tengo amplia experiencia y conocimientos con los programas Suite Hoteles, Booking, Microsoft Office (Word, Excel, Outlook, Access, Teams, PowerPoint), Google Meet, Zoom, etc. 
 
-Facilita la capacidad de gestionar los entornos de recepción con aplomo y elegancia, además de gestionar una serie de tareas administrativas. Deseoso de unirse a un nuevo equipo de personas y ayudarles como recepcionista comprometida y apasionada.
+Me encantaría unirme a su equipo de personas y trabajar como recepcionista comprometida y apasionada, si me dan la oportunidad de demostrarlo. 
 
-Le agradezco su tiempo y le invito a leer mi curriculum vitae (https://github.com/dchagina/cv_daria_chagina/blob/cv_daria_chagina/CV%20Daria%20Chagina.%20Enero-23.pdf) para que conozca más sobre mi desempeño en otros trabajos. Si lo prefieren, podríamos reunirnos en una entrevista para conversar más en detalle. 
+Le agradezco su tiempo y le invito a leer mi curriculum vitae (https://github.com/dchagina/cv_daria_chagina/blob/cv_daria_chagina/CV%20Daria%20Chagina.%20Enero-23.pdf) para conocer mi experiencia en otros empleos, pero también, si lo prefieren, podríamos conocernos en una entrevista para conversar más en detalle. 
 
-Muchas gracias,
-  
-  
-
+Muchas gracias, un cordial saludo.
 Daria Chagina
