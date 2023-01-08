@@ -1,7 +1,11 @@
 DARIA CHAGINA 
+
 daria2503chagina@gmail.com 
+
 +34 600 023 698 
+
 Madrid, España 
+
 
 
 Estimados/as señores/as,
@@ -15,5 +19,7 @@ Me encantaría unirme a su equipo de personas y trabajar como recepcionista comp
 
 Le agradezco su tiempo y le invito a leer mi curriculum vitae (https://github.com/dchagina/cv_daria_chagina/blob/cv_daria_chagina/CV%20Daria%20Chagina.%20Enero-23.pdf) para conocer mi experiencia en otros empleos, pero también, si lo prefieren, podríamos conocernos en una entrevista para conversar más en detalle. 
 
-Muchas gracias, un cordial saludo.
+
+Muchas gracias, un cordial saludo. 
+
 Daria Chagina
