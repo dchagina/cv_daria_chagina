@@ -9,7 +9,7 @@ Madrid, España
 
 
 Estimados/as señores/as,
-Me dirijo a ustedes en respuesta al anuncio de empleo publicado en redes sociales, solicitando una recepcionista. Tengo varios años de experiencia como trabajadora experimentada en la recepción, trabajando de forma autónoma y como apoyo en el entorno de la atención al cliente (empresa de 1400 empleados y hotel de 100 habitaciones). Cuento con experiencia en la gestión de reservas y citas prestando un servicio óptimo en la atención al cliente; facturación, clasificación y preparación de envíos; arqueo de la caja; elaboración de informes diarios; preparación de tareas para personal, control de pedidos y stock de mercancías. 
+Me dirijo a ustedes en respuesta al anuncio de empleo publicado en redes sociales, solicitando una recepcionista. Tengo varios años de experiencia como trabajadora experimentada en la recepción, trabajando de forma autónoma y como apoyo en el entorno de la atención al cliente (empresa de 1400 empleados y hotel de 100 habitaciones). Cuento con experiencia en la gestión de reservas y citas prestando un servicio óptimo en la atención al cliente; organización de plazas de aparcamiento; facturación, clasificación y preparación de envíos; arqueo de la caja; elaboración de informes diarios; preparación de tareas para personal, control de pedidos y stock de mercancías. 
 
 Por mi capacidad para gestionar los entornos de recepción, doy un servicio al cliente con aplomo y elegancia, además de la gestión de las tareas administrativas. 
 
