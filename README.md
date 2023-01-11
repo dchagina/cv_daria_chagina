@@ -17,7 +17,7 @@ En cuanto a idiomas tengo un nivel bilingüe de español, nativa de ruso y un ni
 
 Me encantaría unirme a su equipo de personas y trabajar como recepcionista comprometida y apasionada, si me dan la oportunidad de demostrarlo. 
 
-Le agradezco su tiempo y le invito a leer mi curriculum vitae (https://github.com/dchagina/cv_daria_chagina/blob/cv_daria_chagina/CV%20Daria%20Chagina.%20Enero-23.pdf) para conocer mi experiencia en otros empleos, pero también, si lo prefieren, podríamos conocernos en una entrevista para conversar más en detalle. 
+Le agradezco su tiempo y le invito a leer mi curriculum vitae (https://github.com/dchagina/cv_daria_chagina/blob/cv_daria_chagina/es%20CV%20Daria%20Chagina.%20Enero-23.pdf) para conocer mi experiencia en otros empleos, pero también, si lo prefieren, podríamos conocernos en una entrevista para conversar más en detalle. 
 
 
 Muchas gracias, un cordial saludo. 
